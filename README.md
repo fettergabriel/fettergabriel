@@ -7,4 +7,3 @@ meu nome é Gabriel Junior
 - Uso esse espaço para a minha organização e compartilhamento de meus projetos desenvolvidos
 
 
-![](https://media.tenor.com/1fxCGeZXSbkAAAAd/rock-on-avril-lavigne.gif)
